@@ -1,2 +1,2 @@
 # Parallax-website-
-parallax website is an inspiration for youtuber, this can be used actually youtuber for their YouTube to promote their business. 
+IF you have a youtube channel and in need of website to promote your channel using website so this template is consist of unique design which attrached your visitor to your channel.
